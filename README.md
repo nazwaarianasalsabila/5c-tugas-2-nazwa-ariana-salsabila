@@ -1,1 +1,0 @@
-# 5c-tugas-2-nazwa-ariana-salsabila
